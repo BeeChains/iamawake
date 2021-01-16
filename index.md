@@ -1,37 +1,13 @@
-## Welcome to GitHub Pages
+## I AM AWAKE | 2021 Great Awakening, on top level Handshake(HNS) blockchain domains
 
-You can use the [editor on GitHub](https://github.com/BeeChains/iamawake/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
+I can never answer the question, "Who Am I?" because all questions are created by the egoic mind. I Am Not My Mind.
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+[When the Buddha started to wander around India shortly after his enlightenment, he encountered several men who recognized him to be a very extraordinary being. They asked him: "Are you a god?" "No," he replied. "Are you a reincarnation of god?" "No," he replied."Are you a wizard, then?" "No." "Well, are you a man?" "No." "So what are you?" They asked, being very perplexed.  Buddha simply replied: "I am awake." Buddha means “the awakened one.” How to awaken is all he taught.](https://college.uchicago.edu/news/student-stories/i-am-awake#:~:text=Buddha%20simply%20replied%3A%20"I%20am,awaken%20is%20all%20he%20taught.&text=It%20was%20in%20search%20of,five%20centuries%20after%20Buddha%27s%20enlightenment)
 
-### Markdown
+-Buddhist teaching
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
-
-```markdown
-Syntax highlighted code block
-
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/BeeChains/iamawake/settings). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
+# ["Like a blue lotus, rising up,
+unsmeared by water,
+unsmeared am I by the world,
+and so, brahman,
+I'm awake."](https://www.accesstoinsight.org/tipitaka/an/an04/an04.036.than.html)
