@@ -8,4 +8,4 @@ I can never answer the question, "Who Am I?" because all questions are created b
 
 # ["Like a blue lotus, rising up, unsmeared by water, unsmeared am I by the world, and so, brahman, I Am Awake."](https://www.accesstoinsight.org/tipitaka/an/an04/an04.036.than.html)
 
-# [Inner I Company](http://findusowntheweb.innericompany.hns.to/)
+#|  [Inner I Company](http://findusontheweb.innericompany.hns.to/)| [@HNSDOMAINS](https://twitter.com/hnsdomains)|
