@@ -1,4 +1,4 @@
-## I AM AWAKE | 2021 Great Awakening, on top level Handshake(HNS) blockchain domains
+## I AM AWAKE | Great Awakening, on top level Handshake(HNS) blockchain domains
 
 I can never answer the question, "Who Am I?" because all questions are created by the egoic mind. I Am Not My Mind.
 
